@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://raw.githubusercontent.com/sonasanchay/best-digigold-app-in-thiruvananthapuram/main/best-digigold-app-in-thiruvananthapuram.webp" alt="Best DigiGold App in Thiruvananthapuram - Sanchay DigiGold" width="800">
+  <img src="https://raw.githubusercontent.com/sonasanchay/best-digigold-app-in-thiruvananthapuram/main/best-digigold-app-thiruvananthapuram.webp" alt="Best DigiGold App in Thiruvananthapuram - Sanchay DigiGold" width="800">
 </p>
 # 🪙 Best DigiGold App in Thiruvananthapuram: Smart Digital Gold Savings with Sanchay
 
