@@ -13,16 +13,17 @@ If you are searching for the **[Best DigiGold App in Thiruvananthapuram](https:/
 
 ## 📑 Table of Contents
 
-- ✨ What Is DigiGold and How Does It Work?
-- 💡 Why Choose a DigiGold App for Gold Savings?
-- 📊 Features to Look for in a DigiGold App
-- 🔍 How to Choose the Best DigiGold App in Thiruvananthapuram?
-- 📱 Why Explore Sanchay DigiGold?
-- 🏙️ Is Digital Gold Convenient for People in Thiruvananthapuram?
-- 🚀 How to Start DigiGold Savings with Sanchay?
-- ❓ Frequently Asked Questions
-- 🪙 Start Your Digital Gold Savings Journey
+## 📑 Table of Contents
 
+- [✨ What Is DigiGold and How Does It Work?](#-what-is-digigold-and-how-does-it-work)
+- [💡 Why Choose a DigiGold App for Gold Savings?](#-why-choose-a-digigold-app-for-gold-savings)
+- [📊 Features to Look for in a DigiGold App](#-features-to-look-for-in-a-digigold-app)
+- [🔍 How to Choose the Best DigiGold App in Thiruvananthapuram?](#-how-to-choose-the-best-digigold-app-in-thiruvananthapuram)
+- [📱 Why Explore Sanchay DigiGold?](#-why-explore-sanchay-digigold)
+- [🏙️ Is Digital Gold Convenient for People in Thiruvananthapuram?](#️-is-digital-gold-convenient-for-people-in-thiruvananthapuram)
+- [🚀 How to Start DigiGold Savings with Sanchay?](#-how-to-start-digigold-savings-with-sanchay)
+- [❓ Frequently Asked Questions](#-frequently-asked-questions)
+- [🪙 Start Your Digital Gold Savings Journey](#-start-your-digital-gold-savings-journey)
 ## ✨ What Is DigiGold and How Does It Work?
 
 DigiGold, also known as digital gold, allows you to purchase gold online without buying physical jewellery or coins immediately. Instead of making a large gold purchase at once, you can explore smaller purchases based on your budget and savings plans.
