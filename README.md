@@ -73,7 +73,9 @@ Before choosing a **digital gold app in Thiruvananthapuram**, it is important to
 Choosing an app with clear information about purchases, charges, terms, and redemption options can help you make informed decisions.
 
 ---
-
+<p align="center">
+  <img src="https://raw.githubusercontent.com/sonasanchay/best-digigold-app-in-thiruvananthapuram/main/digigold-app-in-thiruvananthapuram.webp" alt="Best DigiGold App in Thiruvananthapuram - Sanchay DigiGold" width="800">
+</p>
 ## 🔍 How to Choose the Best DigiGold App in Thiruvananthapuram?
 
 Several digital platforms offer gold purchase options. If you are looking for the **best DigiGold app in Thiruvananthapuram**, compare the features and understand how each platform works before making your purchase.
