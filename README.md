@@ -1,3 +1,6 @@
+<p align="center">
+  <img src="https://raw.githubusercontent.com/sonasanchay/best-digigold-app-in-thiruvananthapuram/main/best-digigold-app-in-thiruvananthapuram.webp" alt="Best DigiGold App in Thiruvananthapuram - Sanchay DigiGold" width="800">
+</p>
 # 🪙 Best DigiGold App in Thiruvananthapuram: Smart Digital Gold Savings with Sanchay
 
 Looking for the **best DigiGold app in Thiruvananthapuram** to start saving gold conveniently? Digital gold makes it possible to buy gold online, track your purchases, and build your gold savings without visiting a jewellery showroom every time. Whether you live in Kazhakkoottam, Kowdiar, Pattom, Thampanoor, Sreekariyam, or near Technopark, you can explore digital gold savings directly from your smartphone.
